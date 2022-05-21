@@ -1,5 +1,5 @@
 
-# 📸POTRAIT PHOTOGRAPHY 
+# 📸PORTRAIT PHOTOGRAPHY 
 
 
 📸  One of the most common photography styles, portrait photography, or portraiture, aims to capture the personality and mood of an individual or group. Images may be candid or posed, full body or close-ups. Either way, the subject’s face and eyes are typically in focus. Lighting and backdrop help to convey tone and emotion. Popular types of photography portraits include senior portraits, family portraits, engagement photos, and professional headshots. 
