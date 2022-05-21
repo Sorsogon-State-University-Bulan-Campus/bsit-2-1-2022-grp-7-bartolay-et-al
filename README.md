@@ -32,6 +32,7 @@
 - [artinstitutes.com](https://www.artinstitutes.edu/about/blog/38780-v2-7-types-of-photography-styles-to-master)
 - [masterclass.com](https://www.masterclass.com/articles/essential-portrait-photography-techniques-and-tips#what-is-portrait-photography)
 - [cloudfront.net](https://d16kd6gzalkogb.cloudfront.net/__sized__/magazine_images/The-Worlds-Oldest-Photograph.-Image-via-hrc.utexas.edu_-thumbnail_webp-9999x9999.webp)
+
 Here's the link of our website :
 
 https://sorsogon-state-university-bulan-campus.github.io/bsit-2-1-2022-grp-7-bartolay-et-al/
